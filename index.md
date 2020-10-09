@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Benvenuto nel sito di un genio
 
-I'm glad you are here. I plan to talk about ...
+Grazie a Dio hai trovato questo sito, forse hai pestato una merda oggi
+
+# In ogni caso è innegabile che tu sia un ragazzino fortunato
